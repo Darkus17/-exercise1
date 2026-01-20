@@ -1,2 +1,1 @@
-# -exercise1
- exercise
+оставьте рецензию
